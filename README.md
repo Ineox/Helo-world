@@ -1,4 +1,4 @@
 # Helo-world
 this is a trial.
-This si just  a trial to understand the system of this hting (i don't know what this is ;-;)
-i like cookies 
+This is just a trial to understand the system of this thing (i don't know what this is called ;-;)
+I like cookies 
